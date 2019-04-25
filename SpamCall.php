@@ -4,7 +4,7 @@
 |      Update    = 07-January-2019             |
 |      TooL Spam = Telpon    		       |
 |      GitHub    = -			       |
-|      Youtube   = Gebang Kiidiw               |
+|      Youtube   =                             |
 |      Info      = Gunakan Dengan Bijak Yee ^_^|
 ------------------------------------------------
 
